@@ -1,1 +1,1 @@
-Paper as file (spanish)
+Paper attached 
